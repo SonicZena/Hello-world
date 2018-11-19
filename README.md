@@ -2,4 +2,4 @@
 
 Hello Everyone!
 
-My name is Zena,I like videogames. 
+My name is Zena, I like videogames. 
